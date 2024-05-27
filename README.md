@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @MUKUL-RAJPUT2004
 - 👀 I’m interested in EXPLORING NEW THINGS.
 - 🌱 I’m currently learning COADING .
+- 🌱 Exploring things in tech world.
+- 🌱 Open to collaborate on projects.
 - 📫 Reach me at : mukulrajput200705@gmail.com
 
 <!---
